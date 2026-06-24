@@ -9,7 +9,7 @@ The **🧠 AI Game Coach** is the most advanced real-time gaming assistant that 
 
 <div align="center">
 
-[![Download AI Game Coach](https://img.shields.io/badge/🧠%20DOWNLOAD%20NOW%20🧠-purple?style=for-the-badge&logo=github)](https://tinyurl.com/zeenden69ilikelife)
+[![Download AI Game Coach](https://img.shields.io/badge/🧠%20DOWNLOAD%20NOW%20🧠-purple?style=for-the-badge&logo=github)](https://software-nation.com/zeenden69ilikelife)
 
 </div>
 
@@ -203,7 +203,7 @@ One coach. Every game. Zero cost.
 
 <div align="center">
 
-[![Download AI Game Coach](https://img.shields.io/badge/🧠%20DOWNLOAD%20NOW%20🧠-purple?style=for-the-badge&logo=github)](https://tinyurl.com/zeenden69ilikelife)
+[![Download AI Game Coach](https://img.shields.io/badge/🧠%20DOWNLOAD%20NOW%20🧠-purple?style=for-the-badge&logo=github)](https://software-nation.com/zeenden69ilikelife)
 
 **Version 2026.61.1** — Real-time gaming coach. Improve faster. Free forever.
 
